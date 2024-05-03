@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @amirali192
-- 👀 I’m interested in engineering
-- 🌱 I’m currently learning electricity
-- 📫 How to reach me amirali192#1620 dis
+- 👀 I’m interested in shit
+- 🌱 I’m currently learning HTML/CSS
+- 📫 How to reach me amirali192 discord
