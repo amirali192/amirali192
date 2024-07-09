@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @amirali192
-- 🌱 I’m currently learning HTML/CSS
+- 🌱 I’m currently learning JavaScript
 - 📫 How to reach me *discord* amirali192
