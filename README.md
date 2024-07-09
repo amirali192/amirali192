@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @amirali192
-- 👀 I’m interested in shit
 - 🌱 I’m currently learning HTML/CSS
-- 📫 How to reach me amirali192 discord
+- 📫 How to reach me *discord* amirali192
